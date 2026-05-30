@@ -1,5 +1,5 @@
-  <p align="center">
- 𓋜 𓈒 ݁𝒻 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝓈𝓉𝓊𝒹𝒾ℴ . ⊹ა᱖
+<p align="center">
+𓋜 𓈒 ݁𝒻 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝓈𝓉𝓊𝒹𝒾ℴ . ⊹ა᱖
  <p align="center">
    ⋆.(𝑫𝑵𝑪/𝑺𝒕𝒆𝒂𝒍 𝒐𝒓 𝑰𝒏𝒔𝒑𝒐.)˚𓈒*    
   <p align="center">
@@ -13,7 +13,7 @@
  <p align="center">
     (hidden watermarks are scattered)
     <p align="center">
-  <img width="500" alt="1000093221" src="https://github.com/user-attachments/assets/baf5d464-fe0b-40bb-892c-b0297b8de5e0" />
+      <img width="600" alt="1000093221" src="https://github.com/user-attachments/assets/1e8b50d4-0438-44ef-897d-08b8e6da0eec" />
     <p align="center">
  yumeship with Rafayel, I am very selective of other yume with Rafayel, my apologies (⁠´⁠；⁠ω⁠；⁠｀⁠)
 <p align="center">
@@ -21,12 +21,12 @@
      <p align="center">
         ₊˚ཐི🍰🖌️ ♡ 🐟🎨ཋྀ˚₊
         <p align="center">
-  <img width="500" alt="1000092135" src="https://github.com/user-attachments/assets/230418c0-c241-49cd-9933-80548f6f660e" />
-  <p align="center">
+          <img width="500" alt="1000092135" src="https://github.com/user-attachments/assets/0ec24f89-48cd-4cb3-ac85-444eb221bfd5" />
+<p align="center">
   “ Je t'aime dans tous les univers ”
          <p align="center">
-   <img width="500" alt="1000092100" src="https://github.com/user-attachments/assets/7577c736-e6ad-443a-8bb6-13f998430fda" />
-     <p align="center">
+           <img width="500" alt="1000092100" src="https://github.com/user-attachments/assets/733d2d9d-2fd4-4ec9-9d27-cb33d04bc7eb" />
+   <p align="center">
         “ The only woman I'll look for across every world, the only girl I'll risk everything for. ”
         <p align="center">
           ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ -Rafayel
@@ -40,18 +40,3 @@
       * ꒷︶꒦︶ ୨୧ ︶꒦꒷ ୨ɞ꒷︶꒷꒥꒷
        <p align="center">
        
-
-<!--
-**TeaReverie/TeaReverie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
