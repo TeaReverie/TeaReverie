@@ -31,12 +31,13 @@
         <p align="center">
           ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ -Rafayel
   <p align="center">
-<img width="500" alt="1000092435" src="https://github.com/user-attachments/assets/1ff57071-f99b-45be-bbaa-6e823d72eb00" />
+<img width="500" alt="1000092435" src="https://github.com/user-attachments/assets/84ea82c6-ebae-40ad-909a-a55a8c0ff2e5" />
      <p align="center">
  TYSM TO LUC! I LOVE IT<33, Filipino ver of RafaYii
         <p align="center">
-     <img width="500" src="https://github.com/user-attachments/assets/e4a5dbe0-372a-46b4-95a2-edf2c065b014" alt=![Untitled518_0000-00-02_2_1]>
-    <p align="center">
+     <img width="400" alt="1000091069" src="https://github.com/user-attachments/assets/f014641a-2f87-411a-977e-13d0007b88fb" />
+     <p align="center">
+    ” Bushiagèn...Forever yours. ”
+     <p align="center">
       * ꒷︶꒦︶ ୨୧ ︶꒦꒷ ୨ɞ꒷︶꒷꒥꒷
        <p align="center">
-       
