@@ -36,8 +36,10 @@
  TYSM TO LUC! I LOVE IT<33, Filipino ver of RafaYii
         <p align="center">
      <img width="400" alt="1000091069" src="https://github.com/user-attachments/assets/f014641a-2f87-411a-977e-13d0007b88fb" />
-     <p align="center">
-    ” Bushiagèn...Forever yours. ”
-     <p align="center">
+     <p align="left">
+ ”Bushiagèn...”
+     <p align="right">
+       ”Forever yours, my petite artiste”
+      <p align="center">
       * ꒷︶꒦︶ ୨୧ ︶꒦꒷ ୨ɞ꒷︶꒷꒥꒷
        <p align="center">
