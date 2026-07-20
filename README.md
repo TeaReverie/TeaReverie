@@ -37,9 +37,9 @@
         <p align="center">
      <img width="400" alt="1000091069" src="https://github.com/user-attachments/assets/f014641a-2f87-411a-977e-13d0007b88fb" />
      <p align="left">
- ”Bushiagèn...”
+ $\color{rgb(248, 170, 221)}{\textsf{"Bus}}\color{rgb(246, 147, 211)}{\textsf{hi}}\color{rgb(246, 142, 209)}{\textsf{ag}}\color{rgb(246, 142, 209)}{\textsf{én...”}}$
      <p align="right">
-       ”Forever yours, my petite artiste”
+       $\color{rgb(163, 121, 236)}{\textsf{"forever }}\color{rgb(203, 143, 245)}{\textsf{yours  my}}\color{rgb(190, 127, 230)}{\textsf{petite }}\color{rgb(210, 121, 215)}{\textsf{artiste"}}$
       <p align="center">
       * ꒷︶꒦︶ ୨୧ ︶꒦꒷ ୨ɞ꒷︶꒷꒥꒷
        <p align="center">
