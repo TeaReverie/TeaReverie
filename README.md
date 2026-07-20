@@ -9,8 +9,9 @@
       <p align="center">
      ೀ  @ tea_.reverie on ig  .𖥔🩰 
      <p align="center">
- ✦, - Mikyii Arella, my persona who represents me. Drawn and designed by me!
+$\color{rgb(250, 189, 228)}{\textsf{✦ -Mikyii Arella, }}$✦
  <p align="center">
+  $\color{rgb(250, 189, 228)}{\textsf{my persona who represents me!}}\color{rgb(250, 189, 228)}{\textsf{. Drawn and designed by me}}$
     (hidden watermarks are scattered)
     <p align="center">
       <img width="600" alt="1000093624" src="https://github.com/user-attachments/assets/de210d5c-4ff3-4976-aef2-197d34ccf827" />
