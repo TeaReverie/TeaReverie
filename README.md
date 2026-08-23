@@ -1,5 +1,5 @@
 <p align="center">
-hope you're aware we have more reason than just "mentally drained", oh and make sure to last the last message on discord dms before commenting ^_^ ( targeted or “ not")
+hope you're aware we have more reason than just "mentally drained", oh and make sure to read the last message on discord dms before commenting ^_^ ( targeted or “ not")
 <p align="center">
    ₊˚ ‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵˚₊
        <p align="center">
