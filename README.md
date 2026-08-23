@@ -1,4 +1,6 @@
 <p align="center">
+hope you're aware we have more reason than just "mentally drained" ^_^ ( targeted or “ not")
+<p align="center">
    ₊˚ ‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵˚₊
        <p align="center">
  𓋜 𓈒 ݁𝒻 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝓈𝓉𝓊𝒹𝒾ℴ . ⊹ა᱖
