@@ -1,5 +1,7 @@
 <p align="center">
-hope you're aware we have more reason than just "mentally drained", oh and make sure to read the last message on discord dms of mine (back read if you still don't get the hint.) before commenting ^_^ ( targeted or “ not")
+   Temporary statement:
+   <p align="center">
+   The drama has been addressed successfully to both sides,for those who have seen the drama and someone (/targeted) who told them to kys, it is not your place to dip in especially if it's a conflict between me and my friends as you don't know the full story behind. mind your business.
 <p align="center">
    ₊˚ ‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵˚₊
        <p align="center">
