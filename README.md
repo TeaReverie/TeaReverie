@@ -1,7 +1,7 @@
 <p align="center">
    Temporary statement:
    <p align="center">
-   The drama has been addressed successfully to both sides,for those who have seen the drama and someone (/targeted) who told them to kys, it is not your place to dip in especially if it's a conflict between me and my friends as you don't know the full story behind. mind your business.
+   The drama has been addressed successfully to both sides,for those who have seen the drama and someone (/targeted) who told them to kys, it is not your place to dip in especially if it's a conflict between me and my friends as you don't know the full story behind. mind your own business.
 <p align="center">
    ₊˚ ‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵˚₊
        <p align="center">
