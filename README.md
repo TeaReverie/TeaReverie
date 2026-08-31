@@ -4,7 +4,7 @@
  𓋜 𓈒 ݁𝒻 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝓈𝓉𝓊𝒹𝒾ℴ . ⊹ა᱖
   <p align="center">
         <p align="center">
-    $\color{rgb(250, 189, 228)}{\textsf{✦ ೀ  @ tea—.reverie on ig  .𖥔🩰}}$ 
+    $\color{rgb(250, 189, 228)}{\textsf{✦ ೀ  @ tea—.reverie on insta  .𖥔🩰}}$ 
 <p align="center">
        : ・ෆ・┈・♡ ・┈・ෆ・ :
      <p align="center">
