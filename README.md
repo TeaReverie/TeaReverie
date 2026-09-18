@@ -1,14 +1,15 @@
 <p align="center">
+   <img width="500" alt="1000099359" src="https://github.com/user-attachments/assets/b627083c-6585-4552-be91-ac1c25209086" />
+   <p align="center">
+      Changing layout, working in progress!
+      <p align="center">
    ₊˚ ‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵˚₊
-       <p align="center">
- 𓋜 𓈒 ݁𝒻 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝓈𝓉𝓊𝒹𝒾ℴ . ⊹ა᱖
-  <p align="center">
         <p align="center">
-    $\color{rgb(250, 189, 228)}{\textsf{✦ ೀ  @ tea—.reverie on insta  .𖥔🩰}}$ 
+    $\color{rgb(250, 189, 228)}{\textsf{✦ ೀ   𓋜 𓈒 ݁𝒻 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝓈𝓉𝓊𝒹𝒾ℴ . ⊹ა᱖  .𖥔🩰}}$ 
 <p align="center">
        : ・ෆ・┈・♡ ・┈・ෆ・ :
      <p align="center">
-      <a href="https://rafayii.straw.page" target="[M]"<strong> 𐙚𝐑𝐚𝐟𝐚𝐘𝐢𝐢 </strong></a>
+      <a href="https://rafayii.straw.page" target="[M]"<strong> ⊱ 𝑹𝒂𝒇𝒂𝒀𝒊𝒊 ⊰ </strong></a>  .𖥔.  <a href="https://www.instagram.com/tea_.reverie?stkn=MWk3cGtxdHlweGhvZQ==" target="[M]"<strong> ⊱ 𝑰𝒏𝒔𝒕𝒂 ⊰ </strong></a>
       <p align="center">
         ₊˚ཐི🍰🖌️ ♡ 🐟🎨ཋྀ˚₊
      <p align="center">
