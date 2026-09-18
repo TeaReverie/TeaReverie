@@ -17,7 +17,7 @@ Changing layout, working in progress!
      <p align="right">
        $\color{rgb(163, 121, 236)}{\textsf{"forever }}\color{rgb(203, 143, 245)}{\textsf{yours  my }}\color{rgb(190, 127, 230)}{\textsf{petite }}\color{rgb(210, 121, 215)}{\textsf{artiste"}}$
       <p align="center">
- <img width="500" alt="1000099362" src="https://github.com/user-attachments/assets/d2784e34-505a-4b24-b706-25597fdfb60f" />
+<img width="500" alt="1000099362" src="https://github.com/user-attachments/assets/23fafff7-bb8d-4787-8beb-edceeebd51b6" />
 <p align="center">
  yumeship with Rafayel, I am very selective of other yume with Rafayel, my apologies (⁠´⁠；⁠ω⁠；⁠｀⁠)
 <p align="center">
