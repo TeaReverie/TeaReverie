@@ -11,7 +11,7 @@
 <p align="center">
       <a href="https://rafayii.straw.page" target="[M]"<strong> ⊱ 𝑹𝒂𝒇𝒂𝒀𝒊𝒊 </strong></a>  .𖥔.  <a href="https://www.instagram.com/tea_.reverie?stkn=MWk3cGtxdHlweGhvZQ==" target="[M]"<strong>  𝑰𝒏𝒔𝒕𝒂 </strong></a> .𖥔. <a href="https://mikyii.atabook.org/" target="[M]" <strong>  𝑨𝒕𝒂𝑩𝒐𝒐𝒌 ⊰ </strong></a>
 <p align="center">
-   <table> <tr> <td> <img width="1080" height="1838" alt="1000099393" src="https://github.com/user-attachments/assets/6280d36f-a953-4450-bd96-c9584b2b37eb" /> <p align="center"> Bushiagèn </td> <td> 𐙚𓏵𓏵𓏵𐙚 <h3> About Me </h3> <a href="https://mikyii-rafayel.straw.page" target="[M]"<strong>  ۶۟ৎ Μιƙყιι </strong></a> </p> <p> ₊˚︶︶ꔫ︶︶‌｡˚ </p> 𝐶ℎ𝑖𝑖, 𝑀𝑖𝑘𝑜, 𝑀𝑒𝑖, 𝐾𝑢𝑟𝑜, 𝑆𝑒𝑥𝑦, 𝐼𝑟𝑒𝑛𝑒, 𝑋𝑒𝑛𝑒, 𝑉𝑒𝑡ℎ, 𝐴𝑜𝑘𝑖, 𝑌𝑢𝑘𝑎, 𝐿𝑢𝑐, 𝑃𝑢𝑤𝑖𝑡𝑠, 𝐶𝑖𝑡𝑟𝑜𝑛, 𝑌𝑢𝑛𝑛𝑖𝑒, 𝐹𝑎𝑡𝑒, & 𝐻𝑎𝑢 <p> ————✦————  <p> 𝑉𝑖𝑣𝑖, 𝐾𝑖𝑡𝑡𝑦, 𝐹𝑎𝑙𝑙, 𝑀𝑜𝑐ℎ𝑎, 𝑀𝑖𝑘𝑘𝑜, & 𝐾𝑒𝑣𝑣𝑦 </p> </p>  𐙚𓏵𓏵𓏵𐙚 </td> </tr></table>
+   <table> <tr> <td> <img width="1080" height="1838" alt="1000099393" src="https://github.com/user-attachments/assets/6280d36f-a953-4450-bd96-c9584b2b37eb" /> <p align="center"> Bushiagèn </td> <td> 𐙚𓏵𓏵𓏵𐙚 <h3> About Me </h3> <a href="https://mikyii-rafayel.straw.page" target="[M]"<strong>  ۶۟ৎ Μιƙყιι </strong></a> </p> <p> ₊˚︶︶ꔫ︶︶‌｡˚ </p> 𝐶ℎ𝑖𝑖, 𝑀𝑖𝑘𝑜, 𝑀𝑒𝑖, 𝐾𝑢𝑟𝑜, 𝑆𝑒𝑥𝑦, 𝐼𝑟𝑒𝑛𝑒, 𝑋𝑒𝑛𝑒, 𝑉𝑒𝑡ℎ, 𝐴𝑜𝑘𝑖, 𝐾𝑜𝑟𝑖, 𝐾ℎ𝑎𝑠, 𝑌𝑢𝑘𝑎, 𝐿𝑢𝑐, 𝑃𝑢𝑤𝑖𝑡𝑠, 𝐶𝑖𝑡𝑟𝑜𝑛, 𝑌𝑢𝑛𝑛𝑖𝑒, 𝐹𝑎𝑡𝑒, & 𝐻𝑎𝑢 <p> ————✦————  <p> 𝑉𝑖𝑣𝑖, 𝐾𝑖𝑡𝑡𝑦, 𝐹𝑎𝑙𝑙, 𝑀𝑜𝑐ℎ𝑎, 𝑀𝑖𝑘𝑘𝑜, & 𝐾𝑒𝑣𝑣𝑦 </p> </p>  𐙚𓏵𓏵𓏵𐙚 </td> </tr></table>
 <p align="center">
     <img width="500" alt="1000099395" src="https://github.com/user-attachments/assets/699db2fc-17b7-45d3-8c36-b1a44f663a7b" />
 <p align="center">
