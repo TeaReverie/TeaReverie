@@ -29,4 +29,5 @@ ${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — 
 .𖥔 Flins x Illuga, XiaoVen, ArleFuri, and DottoScara... Heavy DNI unless close friend(s) sorry.
 <p align="center">
         ₊˚ཐི( 🍰🖌️ ♡ 🐟🎨 )ཋྀ˚₊
+<p align="center">
 <img width="1920" alt="4212acf357bb8ff2e1f6bc13b47bf8ae" src="https://github.com/user-attachments/assets/b9c06b58-cdbc-4945-b700-e8058e7dc383" />
