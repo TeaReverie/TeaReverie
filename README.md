@@ -1,9 +1,11 @@
 <p align="center">
+    $\color{rgb(250, 189, 228)}{\textsf{✦ ೀ   𓋜 𓈒 ݁𝒻 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝓈𝓉𝓊𝒹𝒾ℴ . ⊹ა᱖  .𖥔🩰}}$ 
+<p align="center">
 <img width="500" alt="1000099384" src="https://github.com/user-attachments/assets/30495031-3b92-472c-bf13-8161a1f6ba88" />
 <p align="center">
 <img width="500" alt="1000099362" src="https://github.com/user-attachments/assets/23fafff7-bb8d-4787-8beb-edceeebd51b6" />
 <p align="center">
-    $\color{rgb(250, 189, 228)}{\textsf{✦ ೀ   𓋜 𓈒 ݁𝒻 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝓈𝓉𝓊𝒹𝒾ℴ . ⊹ა᱖  .𖥔🩰}}$ 
+    ${\text{\color{#FFACFC} Quote in pic from:aesthtcfltr}}$
 <p align="center">
        : ・ෆ・┈・♡ ・┈・ෆ・ :
 <p align="center">
@@ -16,7 +18,6 @@
 <p align="center">
    <img width="500" alt="1000099359" src="https://github.com/user-attachments/assets/b627083c-6585-4552-be91-ac1c25209086" />
 <p align="center">
-${\text{\color{#FFACFC} Quote in pic from:aesthtcfltr}}$
 ${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — }}$
    ${\text{\color{#B6A7FF} Boundaries }}$
 <p align="center">
