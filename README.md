@@ -13,8 +13,9 @@ Changing layout, working in progress!
 <p align="center">
 <img width="500" alt="1000099362" src="https://github.com/user-attachments/assets/23fafff7-bb8d-4787-8beb-edceeebd51b6" />
 <p align="center">
-${\text{\color{#A7698D} ✄ — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — }}$
-   ${\text{\color{#A7698D} Boundaries }}$
+${\text{\color{#FFACFC} Quote in pic from:aesthtcfltr}}$
+${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — }}$
+   ${\text{\color{#B6A7FF} Boundaries }}$
 <p align="center">
 .𖥔 Selective yume w Rafayel as I did not want to interact with nonsharing Rafayel yumes, I respect their choice and would rather not interact too (⁠´⁠；⁠ω⁠；⁠｀⁠)
 <p align="center">
