@@ -1,7 +1,7 @@
 <p align="center">
     $\color{rgb(250, 189, 228)}{\textsf{✦ ೀ   𓋜 𓈒 ݁𝒻 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝓈𝓉𝓊𝒹𝒾ℴ . ⊹ა᱖  .𖥔🩰}}$ 
 <p align="center">
-<img width="500" alt="1000099384" src="https://github.com/user-attachments/assets/30495031-3b92-472c-bf13-8161a1f6ba88" />
+<img width="500" alt="1000099384" src="https://github.com/user-attachments/assets/8098bb03-a1f8-4933-bca4-057b0c12ffff" />
 <p align="center">
 <img width="500" alt="1000099362" src="https://github.com/user-attachments/assets/23fafff7-bb8d-4787-8beb-edceeebd51b6" />
 <p align="center">
