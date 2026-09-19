@@ -16,12 +16,12 @@ Changing layout, working in progress!
 ${\text{\color{#A7698D} ✄ — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — }}$
    ${\text{\color{#A7698D} Boundaries }}$
 <p align="center">
-• Selective yume w Rafayel as I did not want to interact with nonsharing Rafayel yumes, I respect their choice and would rather not interact too (⁠´⁠；⁠ω⁠；⁠｀⁠)
+.𖥔 Selective yume w Rafayel as I did not want to interact with nonsharing Rafayel yumes, I respect their choice and would rather not interact too (⁠´⁠；⁠ω⁠；⁠｀⁠)
 <p align="center">
-• I freely hide people to avoid unnecessary drama especially those who cannot be responsible to face us, let alone confront/reach out to me or my friends when a misunderstanding occured, as you chose to spread misinformation behind my back or my friends.
+.𖥔 I freely hide people to avoid unnecessary drama especially those who cannot be responsible to face us, let alone confront/reach out to me or my friends when a misunderstanding occured, as you chose to spread misinformation behind my back or my friends.
 <p align="center">
-• Do not interact if you hide/cut ties with my close friends for no reason just because I'm friends with them.
+.𖥔 Do not interact if you hide/cut ties with my close friends for no reason just because I'm friends with them. And those who have lack of empathy or sympathy, I don't wanna drain myself trying to understand you.
 <p align="center">
-• Flins x Illuga, XiaoVen, ArleFuri, and DottoScara... Heavy DNI unless close friend(s) sorry.
+.𖥔 Flins x Illuga, XiaoVen, ArleFuri, and DottoScara... Heavy DNI unless close friend(s) sorry.
 <p align="center">
         ₊˚ཐི🍰🖌️ ♡ 🐟🎨ཋྀ˚₊
