@@ -11,7 +11,7 @@ Changing layout, working in progress!
 <p align="center">
         ₊˚ཐི🍰🖌️ ♡ 🐟🎨ཋྀ˚₊
 <p align="center">
-   <table> <tr> <td> <img width="2756" height="2756" alt="1000099376" src="https://github.com/user-attachments/assets/c52ee3d9-df2b-4246-b753-8f2d5dc80272" /> ↑ img only for example </td> <td> 𐙚𓏵𓏵𓏵𐙚 <h3> About Me </h3> <a href="https://mikyii-rafayel.straw.page" target="[M]"<strong>  ۶۟ৎ Μιƙყιι </strong></a> </p> <p> ₊˚︶︶ꔫ︶︶‌｡˚ </p> Chii, Miko, Mei, Kuro, Sexy, Xene, Veth, Aoki, Yuka, Luc, Citron, Kitty, Fall, Mocha & Mikko </p> </p>  𐙚𓏵𓏵𓏵𐙚 </td> </tr></table>
+   <table> <tr> <td> <img width="2756" height="2756" alt="1000099376" src="https://github.com/user-attachments/assets/c52ee3d9-df2b-4246-b753-8f2d5dc80272" /> ↑ img only for example </td> <td> 𐙚𓏵𓏵𓏵𐙚 <h3> About Me </h3> <a href="https://mikyii-rafayel.straw.page" target="[M]"<strong>  ۶۟ৎ Μιƙყιι </strong></a> </p> <p> ₊˚︶︶ꔫ︶︶‌｡˚ </p> 𝐶ℎ𝑖𝑖, 𝑀𝑖𝑘𝑜, 𝑀𝑒𝑖, 𝐾𝑢𝑟𝑜, 𝑆𝑒𝑥𝑦, 𝑋𝑒𝑛𝑒, 𝑉𝑒𝑡ℎ, 𝐴𝑜𝑘𝑖, 𝑌𝑢𝑘𝑎, 𝐿𝑢𝑐, 𝐶𝑖𝑡𝑟𝑜𝑛, 𝐾𝑖𝑡𝑡𝑦, 𝐹𝑎𝑙𝑙, 𝑀𝑜𝑐ℎ𝑎, 𝑀𝑖𝑘𝑘𝑜 & 𝑌𝑢𝑛𝑛𝑖𝑒 </p> </p>  𐙚𓏵𓏵𓏵𐙚 </td> </tr></table>
 <p align="center">
 <img width="500" alt="1000099362" src="https://github.com/user-attachments/assets/23fafff7-bb8d-4787-8beb-edceeebd51b6" />
 <p align="center">
