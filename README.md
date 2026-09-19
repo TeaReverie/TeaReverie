@@ -1,5 +1,5 @@
 <p align="center">
-Changing layout, working in progress!
+<img width="500" alt="1000099384" src="https://github.com/user-attachments/assets/30495031-3b92-472c-bf13-8161a1f6ba88" />
 <p align="center">
 <img width="500" alt="1000099362" src="https://github.com/user-attachments/assets/23fafff7-bb8d-4787-8beb-edceeebd51b6" />
 <p align="center">
@@ -10,6 +10,9 @@ Changing layout, working in progress!
       <a href="https://rafayii.straw.page" target="[M]"<strong> ⊱ 𝑹𝒂𝒇𝒂𝒀𝒊𝒊 ⊰ </strong></a>  .𖥔.  <a href="https://www.instagram.com/tea_.reverie?stkn=MWk3cGtxdHlweGhvZQ==" target="[M]"<strong>  𝑰𝒏𝒔𝒕𝒂 ⊰ </strong></a> .𖥔. <a href="https://mikyii.atabook.org/" target="[M]" <strong>  𝑨𝒕𝒂𝑩𝒐𝒐𝒌 ⊰ </strong></a>
 <p align="center">
    <table> <tr> <td> <img width="2756" height="2756" alt="1000099376" src="https://github.com/user-attachments/assets/c52ee3d9-df2b-4246-b753-8f2d5dc80272" /> ↑ img only for example </td> <td> 𐙚𓏵𓏵𓏵𐙚 <h3> About Me </h3> <a href="https://mikyii-rafayel.straw.page" target="[M]"<strong>  ۶۟ৎ Μιƙყιι </strong></a> </p> <p> ₊˚︶︶ꔫ︶︶‌｡˚ </p> 𝐶ℎ𝑖𝑖, 𝑀𝑖𝑘𝑜, 𝑀𝑒𝑖, 𝐾𝑢𝑟𝑜, 𝑆𝑒𝑥𝑦, 𝑋𝑒𝑛𝑒, 𝑉𝑒𝑡ℎ, 𝐴𝑜𝑘𝑖, 𝑌𝑢𝑘𝑎, 𝐿𝑢𝑐, 𝐶𝑖𝑡𝑟𝑜𝑛, 𝐾𝑖𝑡𝑡𝑦, 𝐹𝑎𝑙𝑙, 𝑀𝑜𝑐ℎ𝑎, 𝑀𝑖𝑘𝑘𝑜, 𝑉𝑖𝑣𝑖 & 𝑌𝑢𝑛𝑛𝑖𝑒 </p> </p>  𐙚𓏵𓏵𓏵𐙚 </td> </tr></table>
+<p align="center">
+    <img width="1500" height="321" alt="1000099383" src="https://github.com/user-attachments/assets/720c4880-f8d6-49a9-b2e0-992ce6024732" />
+
 <p align="center">
    <img width="500" alt="1000099359" src="https://github.com/user-attachments/assets/b627083c-6585-4552-be91-ac1c25209086" />
 <p align="center">
