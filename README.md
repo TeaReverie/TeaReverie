@@ -11,11 +11,7 @@ Changing layout, working in progress!
 <p align="center">
         ₊˚ཐི🍰🖌️ ♡ 🐟🎨ཋྀ˚₊
 <p align="center">
-      <img width="200" alt="1000096537" src="https://github.com/user-attachments/assets/a4336348-64f9-48c5-9ace-3157ff5b6a67" />   <img width="200" alt="1000096538" src="https://github.com/user-attachments/assets/8075ae38-3464-44f6-9641-02a8fd40e02f" />
-<p align="left">
- $\color{rgb(248, 170, 221)}{\textsf{"Bus}}\color{rgb(246, 147, 211)}{\textsf{hi}}\color{rgb(246, 142, 209)}{\textsf{ag}}\color{rgb(246, 142, 209)}{\textsf{én...”}}$
-<p align="right">
-       $\color{rgb(163, 121, 236)}{\textsf{"forever }}\color{rgb(203, 143, 245)}{\textsf{yours  my }}\color{rgb(190, 127, 230)}{\textsf{petite }}\color{rgb(210, 121, 215)}{\textsf{artiste"}}$
+   <table> <tr> <td> <img width="2756" height="2756" alt="1000099376" src="https://github.com/user-attachments/assets/c52ee3d9-df2b-4246-b753-8f2d5dc80272" /> ↑ img only for example </td> <td> <h3> About Me </h3> <p> Heya </p> </td> </tr></table>
 <p align="center">
 <img width="500" alt="1000099362" src="https://github.com/user-attachments/assets/23fafff7-bb8d-4787-8beb-edceeebd51b6" />
 <p align="center">
