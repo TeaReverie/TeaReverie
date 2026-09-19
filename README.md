@@ -5,7 +5,7 @@
 <p align="center">
 <img width="500" alt="1000099362" src="https://github.com/user-attachments/assets/23fafff7-bb8d-4787-8beb-edceeebd51b6" />
 <p align="center">
-    ${\text{\color{#FFACFC} Quote in pic from:aesthtcfltr}}$
+    ${\text{\color{#FFACFC} Quote in pic from: @aesthtcfltr}}$
 <p align="center">
        : ・ෆ・┈・♡ ・┈・ෆ・ :
 <p align="center">
