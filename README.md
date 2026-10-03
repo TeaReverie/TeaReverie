@@ -30,18 +30,15 @@ ${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — 
 <p align="center">
 .𖥔 Flins x Illuga, XiaoVen, ArleFuri, and DottoScara... Heavy DNI unless close friend(s) sorry.
 <p align="center">
-<table>
-<tr>
-    
+</div>
 <p align="center">
-    ${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — }}$
+</div>
     <div align="center">
   <details>
-    <summary>INSERT TITLE/TEXT</summary>
-    text text text text text
-<table>
-<tr>
+    <summary> ${\text{\color{#B6A7FF} Interaction}}$</summary>
+    ۶۟ৎ • I don't mind any interaction as I freely welcome int and heavily encourage C+H even if not in my name, feel free to do so, unless I have DNIs on my name but that rarely happens unless not really in the good mood.
+</div>
 <p align="center">
         ₊˚ཐི( 🍰🖌️ ♡ 🐟🎨 )ཋྀ˚₊
 <p align="center">
-<img width="1920" alt="4212acf357bb8ff2e1f6bc13b47bf8ae" src="https://github.com/user-attachments/assets/b9c06b58-cdbc-4945-b700-e8058e7dc383" />
+<img width="1920" alt="4212acf357bb8ff2e1f6bc13b47bf8ae" src="https://github.com/user-attachments/assets/b9c06b58-cdbc-4945-b700-e8058e7dc383" 
