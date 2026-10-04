@@ -41,7 +41,7 @@ ${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — 
 <p align="center">
     ۶۟ৎ • I don't mind Rafayel girlies/yumes interacting, just don't be weird around me and we'll get along perfectly fine! but if you're a nonsharing, it's fine you can block me if you don't wanna see me, I respect boundaries.
 <p align="center">
-    ۶۟ৎ • I love and play Love And Deepspace, feel free to interact with me 🥹, I love inetracting with lads girlies but again, don't be weird or start comparing which LI is better because I'll most likely won't talk to you much or worse, get blocked by me. I prefer our interactions light and respectful! I'm not really hard to get along with as long as you don't push boundaries
+    ۶۟ৎ • I love and play Love And Deepspace, feel free to interact with me 🥹, I love inetracting with lads girlies but again, don't be weird or start comparing which LI is better because I'll most likely won't talk to you much or worse, get block by me. I prefer our interactions light and respectful! I'm not really hard to get along with as long as you don't push boundaries
 </div>
 <p align="center">
         ₊˚ཐི( 🍰🖌️ ♡ 🐟🎨 )ཋྀ˚₊
