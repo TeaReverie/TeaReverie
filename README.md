@@ -36,7 +36,12 @@ ${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — 
     <div align="center">
   <details>
     <summary> ${\text{\color{#B6A7FF} Interaction}}$</summary>
+<p align="center">
     ۶۟ৎ • I don't mind any interaction as I freely welcome int and heavily encourage C+H even if not in my name, feel free to do so, unless I have DNIs on my name but that rarely happens unless not really in the good mood.
+<p align="center">
+    ۶۟ৎ • I don't mind Rafayel girlies/yumes interacting, just don't be weird around me and we'll get along perfectly fine! but if you're a nonsharing, it's fine you can block me if you don't wanna see me, I respect boundaries.
+<p align="center">
+    ۶۟ৎ • I love and play Love And Deepspace, feel free to interact with me 🥹, I love inetracting with lads girlies but again, don't be weird or start comparing which LI is better because I'll most likely won't talk to you much or worse, get blocked by me. I prefer our interactions light and respectful! I'm not really hard to get along with as long as you don't push boundaries
 </div>
 <p align="center">
         ₊˚ཐི( 🍰🖌️ ♡ 🐟🎨 )ཋྀ˚₊
