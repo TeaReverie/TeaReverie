@@ -3,6 +3,7 @@
 <p align="center">
     <img width="1080" height="429" alt="1000100644" src="https://github.com/user-attachments/assets/ee40cf46-d50e-4447-8eb0-79faeec61a27" />
 <p align="center">
+    KEV WHEN I CATCH YOUUUUUU
     $\color{rgb(250, 189, 228)}{\textsf{✦ ೀ   𓋜 𓈒 ݁𝒻 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝓈𝓉𝓊𝒹𝒾ℴ . ⊹ა᱖  .𖥔🩰}}$ 
 <p align="center">
 <img width="500" alt="1000099384" src="https://github.com/user-attachments/assets/8098bb03-a1f8-4933-bca4-057b0c12ffff" />
