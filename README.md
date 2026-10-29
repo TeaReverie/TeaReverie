@@ -43,7 +43,7 @@ ${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — 
 
 .𖥔 I freely hide people to avoid unnecessary drama especially those who cannot be responsible to face us, let alone confront/reach out to me or my friends when a misunderstanding occured, as you chose to spread misinformation behind my back or my friends.
 
-.𖥔 (for people who I once saw as a friend.) Do not ever interact to me or think I'd reach put for more than twice or thrice. You are delusional enough to think of that knowing I do not stay for people who have done wrong things to me or my friends. especially for those who self pity, doing nothing to improve themselves as they rely on comfort for themselves. Don't think I am not aware you use my name for your own entertainment either, something to gossip about. trying to make people have wrong assumptions of me.
+.𖥔 (for people who I once saw as a friend.) Do not ever interact to me or think I'd reach out for more than twice or thrice. You are delusional enough to think of that knowing I do not stay for people who have done wrong things to me or my friends. especially for those who self pity, doing nothing to improve themselves as they rely on comfort for themselves. Don't think I am not aware you use my name for your own entertainment either, something to gossip about. trying to make people have wrong assumptions of me.
 
 .𖥔 Do not interact if you hide/cut ties with my close friends for no reason just because I'm friends with them. And those who have lack of empathy or sympathy, I don't wanna drain myself trying to understand you.
 
