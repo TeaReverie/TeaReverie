@@ -26,7 +26,7 @@ ${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — 
   <div align="center">
   <div align="center">
 <details> <summary> ${\text{\color{#B6A7FF} 𝒜𝒷ℴ𝓊𝓉  ℳℯ   }}$</summary>
-<p align="Left"> ✦ Hi, I am Mikyii and I am mirror sharing of Rafayel, I prefer avoiding some of his fans that are toxic as you can see on my boundaries. I prefer selecting Rafayel fans/lovers that I will be able to feel safe with and interact without feeling drained or overwhelmed.
+<p align="Left"> ✦ Hi, I am Mikyii and I am mirror sharing & Soulbound yume of Rafayel, I prefer avoiding some of his fans that are toxic as you can see on my boundaries. I prefer selecting Rafayel fans/lovers that I will be able to feel safe with and interact without feeling drained or overwhelmed.
 <p align="Left">
   ✦ I kin Rafayel a lot and find myself having a deep connection with the character itself, I feel safe and seen by him even if he's a fictional character, he's precious and dear to me so if you dislike him or mischaracterize him, please simply DNI. I would immidiately block you as I do not want to start a fuss with you or let my mood be ruined by you. Rafayel is my source of comfort whenever I feel upset or down, it's one of the reasons why I feel protective to him when he's being hated for no reason or being compared as the least "Attractive/Masculine" in all 6 of them (yes, I still see Valko as the 6th LI.)
   <p align="Left">
@@ -38,7 +38,7 @@ ${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — 
   <div align="center">
 <details> <summary> ${\text{\color{#B6A7FF} 𝙱𝚘𝚞𝚗𝚍𝚊𝚛𝚒𝚎𝚜   }}$</summary>
 <p align="left">
-    .𖥔 Selective and mirrorsharing yume w Rafayel as I did not want to interact with toxic fans of his and nonsharing Rafayel yumes as I respect their choice and would rather not interact too (⁠´⁠；⁠ω⁠；⁠｀⁠)
+    .𖥔 Selective, mirrorsharing & soulbound yume w Rafayel as I did not want to interact with toxic fans of his and nonsharing Rafayel yumes as I respect their choice and would rather not interact too (⁠´⁠；⁠ω⁠；⁠｀⁠)
 <p align="Left">
 .𖥔 I freely hide people to avoid unnecessary drama especially those who cannot be responsible to face us, let alone confront/reach out to me or my friends when a misunderstanding occured, as you chose to spread misinformation behind my back or my friends.
 <p align="Left">
