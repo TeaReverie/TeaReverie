@@ -20,17 +20,6 @@
 ${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — }}$ 
   <div align="center">
   <div align="center">
-<details> <summary> ${\text{\color{#B6A7FF} 𝒜𝒷ℴ𝓊𝓉  ℳℯ   }}$</summary>
-<p align="Left"> ✦ Greetings, I am Mikyii. I'm someone who's fond of art, art is something I am interested at ever since I was little. I am fond of Opera, Theater, Paintings, Ballet, Literature (mostly poetry), music and orchestras (I also am learning violin), sculpture and etc. I've been exploring and pushing my boundaries in creativity and as a result, I have multiple abilities in art and currently trying to relearn how to pain and to sculpt soon. I love art a lot especially Renaissance, Rococo and Baroque, these art my favorites a lot<3
-<p align="Left">
-  ✦ I kin Rafayel a lot and find myself having a deep connection with the character itself, I feel safe and seen by him even if he's a fictional character, he's precious and dear to me so if you dislike him or mischaracterize him, please simply DNI. I would immidiately block you as I do NOT want to start a fuss with you or let my mood be ruined by you. Rafayel is my source of comfort whenever I feel upset or down, it's one of the reasons why I feel protective to him when he's being hated for no reason or being compared as the least "Attractive/Masculine" in all 6 of them (yes, I still see Valko as the 6th LI.). I am also a mirror sharing & Soulbound yume of Rafayel, I prefer avoiding some of his fans that are toxic as you can see on my boundaries. I prefer selecting Rafayel fans/lovers that I will be able to feel safe with and interact without feeling drained or overwhelmed.
-  <p align="Left">
-  ✦ I love anything related to water such as the Ocean, river, rain, sea, etc. I've been interested in the Ocean ever since I was little and before I even get to see the ocean myself personally. I also am fascinated to the creatures and animals that lives under the sea, my first favorite animal was whales, turtles, dolphins, sea shells, and clown fish. now I have more favorite and my most favorite is Jellyfish and Whales, I find them all interesting and fascinating. I find it funny how I am also invested in mermaids when I was a child and now Rafayel is my most favorite character
-<p align="Left">
-  ✦ Lastly, I love Pastries and Tea a lot. I think it should be obvious by now as my Sona's aesthetic is inspired by pastry and teacup, I also love the colour purple a lot, I love any shade of purple. 
-</div>
-  <div align="center">
-  <div align="center">
 <details> <summary> ${\text{\color{#B6A7FF} 𝙱𝚘𝚞𝚗𝚍𝚊𝚛𝚒𝚎𝚜   }}$</summary>
 <p align="left">
     .𖥔 Very Selective/Mirrorsharing yume to Rafayel as I did not want to interact with toxic fans of his and nonsharing Rafayel yumes as I respect their choice and would rather not interact too (⁠´⁠；⁠ω⁠；⁠｀⁠)
