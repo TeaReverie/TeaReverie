@@ -33,7 +33,7 @@ ${\text{\color{#D6AEFF} ✄ — — — — — — — — — — — — — 
   <div align="center">
 <details> <summary> ${\text{\color{#B6A7FF} 𝙱𝚘𝚞𝚗𝚍𝚊𝚛𝚒𝚎𝚜   }}$</summary>
 <p align="left">
-    .𖥔 Selective, mirrorsharing & soulbound yume w Rafayel as I did not want to interact with toxic fans of his and nonsharing Rafayel yumes as I respect their choice and would rather not interact too (⁠´⁠；⁠ω⁠；⁠｀⁠)
+    .𖥔 Very Selective/Mirrorsharing yume to Rafayel as I did not want to interact with toxic fans of his and nonsharing Rafayel yumes as I respect their choice and would rather not interact too (⁠´⁠；⁠ω⁠；⁠｀⁠)
 <p align="Left">
 .𖥔 I freely hide people to avoid unnecessary drama especially those who cannot be responsible to face us, let alone confront/reach out to me or my friends when a misunderstanding occured, as you chose to spread misinformation behind my back or my friends.
 <p align="Left">
